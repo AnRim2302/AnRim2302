@@ -1,0 +1,2 @@
+- 👋 Hi, I’m An Rim, from Lixco company.
+- 👀 I’m looking for a Java fresher or junior Java.
